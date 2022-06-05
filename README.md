@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Ethical hacking 👨‍💻**
 
-- 💬 Ask me about **My telegram I'd -: @Official_EvilSec**
+- 💬 **My telegram I'd -: @Official_EvilSec**
 
 - 📫 How to reach me **evilsec0101@gmail.com**
 
